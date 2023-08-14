@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KIKEHds
+- 👀 I’m interested in design in specific digital design
+- 🌱 I’m currently learning more about development and UX design
+- 💞️ I’m looking to collaborate on different fields around the world
+- 📫 How to reach me kikeh.21design@gmail.com
+- 
